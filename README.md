@@ -7,7 +7,11 @@ Welcome to my GitHub profile! 🚀
 I'm Saikat Manna.
 I'm interested in technology, gaming, social media and creating content.
 This is my personal space where I can share my projects, interests and online profiles.
+## ❤️ Someone Special
 
+**Dhongi🎀💫**
+
+She is one of my favorite person. ❤️
 🎮 BGMI
 
 IGN: JaCk๛DaNieL's
