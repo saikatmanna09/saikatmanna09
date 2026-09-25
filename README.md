@@ -1,16 +1,31 @@
-## Hi there 👋
+👋 Hi, I'm Saikat Manna
 
-<!--
-**saikatmanna09/saikatmanna09** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Welcome to my GitHub profile! 🚀
 
-Here are some ideas to get you started:
+👨‍💻 About Me
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+I'm Saikat Manna.
+I'm interested in technology, gaming, social media and creating content.
+This is my personal space where I can share my projects, interests and online profiles.
+
+🎮 BGMI
+
+IGN: JaCk๛DaNieL's
+UID: 55619352171
+
+🌐 Connect With Me
+
+📺 YouTube:
+https://youtube.com/@saikatmanna-o4d?si=Zhh_qUYMje3P1ZrO
+
+📸 Instagram:
+https://www.instagram.com/saikat_manna_09/
+
+📘 Facebook:
+https://www.facebook.com/saikat.manna.73932?mibextid=ZbWKwL
+
+---
+
+⭐ Thanks for visiting my profile!
+
+© Saikat Manna
